@@ -1,1 +1,1 @@
-# .github
+# Are you a Globy hero?
