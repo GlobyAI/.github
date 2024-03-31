@@ -1,1 +1,1 @@
-# Are you a Globy hero?
+# Are you a Global Superhero?
